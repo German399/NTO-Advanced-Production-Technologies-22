@@ -15,7 +15,7 @@
 <br />
 <br />
   
-  As a result, we became the winners of the National Technological Olympiad in the profile - Advanced production technologies from SPBPU named after. Peter the Great
+  As a result, we became the winners of the National Technological Olympiad in the profile - Advanced production technologies from SPBPU named after. Peter the Great.
   
   
 ![TakeOff_foto](https://sun9-82.userapi.com/impg/DGCf7aa0xmwfXCOi_JdxrUVMGZnUnyvM0a0ClA/2-7bP6Dy6co.jpg?size=1920x1009&quality=96&sign=4fb2608db0e45070e9fb64760b22a369&type=album)
